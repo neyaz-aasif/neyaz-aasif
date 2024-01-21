@@ -17,7 +17,7 @@
 🤝 Open to collaboration and always excited to connect with like-minded individuals. Let's build something amazing together!
 
 📫 Reach out to me:
-   - LinkedIn: [MD AASIF](www.linkedin.com/in/neyaz-aasif-sandip-university)
+   - LinkedIn: (https://www.linkedin.com/in/neyaz-aasif-sandip-university/)
    - Email: aasif2003sad@gmail.com
 
 🌟 "The only way to do great work is to love what you do." - Steve Jobs
